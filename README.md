@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @hi-jingxian I do visual art for living.
+- 👋 Hi, I do visual art for living.
 - 👀 I’m interested in 寫網文賺稿費買泡麵
-- 🌱 I’m currently learning coding
+- 🌱 I’m currently learning 寫網文賺稿費買泡麵
 - 📫 How to reach me：goole 'dijingxian'
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: 財神爺的忠實信徒
